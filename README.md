@@ -1,3 +1,3 @@
 # RainbowEngine
 
-#do some thing that no every one can do  but can help every one
+#do one thing that no every one can do  but can help every one
